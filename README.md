@@ -4,6 +4,9 @@
 ## 2024-2025:
 ![image](https://github.com/user-attachments/assets/652963ec-c535-4a37-a324-98784e3d4020)
 
+## 2022-2023:
+![image](https://github.com/user-attachments/assets/bf8be321-9d46-4f8e-a363-f259bcf9d1e6)
+
 ## 2021-2022:
 ![image](https://github.com/user-attachments/assets/73aea9a8-0a90-4d63-8777-73b8342b7868)
 
