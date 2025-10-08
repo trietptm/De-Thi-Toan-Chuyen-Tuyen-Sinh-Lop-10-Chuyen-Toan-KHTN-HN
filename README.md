@@ -1,6 +1,10 @@
 # De-Thi-Toan-Chuyen-Tuyen-Sinh-Lop-10-Chuyen-Toan-KHTN-HN
 * Đề Thi Tuyển Sinh Toán chuyên (Vòng II) Vào Lớp 10 Chuyên Toán Trường THPT Chuyên KHTN, Hà Nội
 
+## 2025-2026:
+* http://toanhocvietnam.vn/Upload/dethichuyentoan/2025/de-thi-tuyen-sinh-vao-lop-10-mon-Toan-Truong-THPT-CHUYEN-KHTN-nam-2025.pdf
+* 
+
 ## 2024-2025:
 ![image](https://github.com/user-attachments/assets/652963ec-c535-4a37-a324-98784e3d4020)
 
